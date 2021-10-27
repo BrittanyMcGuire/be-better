@@ -13,3 +13,4 @@ My candidates live here 👩‍💻 Why would you want another recruiter spammin
 Throughout my profile you will see that I share tips for those looking for new roles, want to prep for interviews better, and put information at your fingertips on how you can land that dream job you're looking at. It may not be with me, but it’s all about karma.
 
 👉 This is a work in progress. I'm always learning and adding new things so either I can remember them, or you can use them. I didn't find all this myself and heartfully thank all those in the recruitment community that provided help along the way. 💛
+
